@@ -1,6 +1,6 @@
-hey! Muqadas Here 
-Have fun...
-Do What makes you happyyyyy!
+Heyyy! Muqadas here..
+have fun......
+Do what makes you happyyyyyyy.
 
 <!---
 muqadas-shehzadii/muqadas-shehzadii is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
